@@ -1,4 +1,4 @@
-- 👋 Hi, I’m absiramesfin and Biomedical engineering graduate from Jimma university in 2019 GC.
+- 👋 Hi, I’m absiramesfin and Biomedical engineering graduate from Jimma university in 2019 GC and I have four years experience in health care technology management in Kaffa zone health department.
 - 👀 I’m interested in transcribing from english to amharic,data entering and all type of remote works
 - 🌱 I’m currently learning computer science online.
 - 💞️ I’m looking to collaborate on remote jobs.
